@@ -1,2 +1,2 @@
-20223060 Eunji Kim
+Eunji Kim 20223060
 Kookmin Univ. SW
